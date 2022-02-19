@@ -1,1 +1,1 @@
-# Omar-Partida
+# OmarPartida
